@@ -1,2 +1,2 @@
 # Walker
-SSiSLS materials produced by ccwalker
+SSiSLS materials produced by Catherine Walker!
